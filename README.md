@@ -1,0 +1,2 @@
+# premium-terra-sigillata-001-terra-sigillata-slip-burnish
+Tired of scattered notes on terra sigillata techniques, recipes, and burnishing sequences? The Terra Sigillata Slip &amp; Burnish Polish Hub consolidates everything you need into one organized, searchable Notion workspace.  This template eliminates the frustration of hunting through notebooks, screenshots, and half-remembered formulas every time you mi
